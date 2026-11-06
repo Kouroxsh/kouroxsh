@@ -10,4 +10,4 @@ Tools
 
 ---
 
-"Website" (https://me.kouroxsh.ir) · "Telegram" (https://t.me/vix_land) · nightlandcompany@proton.me
+· "Telegram" (https://t.me/itz_kouroxsh) · nightlandcompany@proton.me
